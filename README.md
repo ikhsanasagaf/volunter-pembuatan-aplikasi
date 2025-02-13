@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Ikhsan asagaf, [oo.or.id](https://oo.or.id).
+* Yunita rayhana, [Linkedin](https://www.linkedin.com/in/ikhsan-asagaf/).
